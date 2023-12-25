@@ -3,7 +3,7 @@ async function enviarScript(scriptText){
 	main = document.querySelector("#main"),
 	textarea = main.querySelector(`div[contenteditable="true"]`)
 	
-	if(!textarea) throw new Error("Não há uma conversa aberta")
+	if(!textarea) throw new Error("No posee una conversación abierta")
 	
 	for(const line of lines){
 		console.log(line)
@@ -25,7 +25,7 @@ async function enviarScript(scriptText){
 enviarScript(`
 SHREK
 
-Written by
+Escrita por
 
 William Steig & Ted Elliott
 
@@ -33,20 +33,22 @@ William Steig & Ted Elliott
 
 
 SHREK
-Once upon a time there was a lovely 
-princess. But she had an enchantment 
-upon her of a fearful sort which could 
-only be broken by love's first kiss. 
-She was locked away in a castle guarded 
-by a terrible fire-breathing dragon. 
-Many brave knights had attempted to 
-free her from this dreadful prison, 
-but non prevailed. She waited in the 
-dragon's keep in the highest room of 
-the tallest tower for her true love 
-and true love's first kiss. (laughs) 
-Like that's ever gonna happen. What 
-a load of - (toilet flush)
+Había una vez,
+una encantadora princesa.
+Pero estaba condenada por un
+terrible hechizo que solo
+podía romperse con el beso del
+verdadero amor.
+La había encerrado en un castillo
+que vigilaba un horrible dragón
+que escupía fuego.
+Muchos valientes caballero se habían
+intentado liberarla de esa sombría prisión,
+pero ninguno lo habia logrado.
+Y custodiada por el dragón esperaba,
+en el último cuarto de la torre más alta,
+a su primer amor, el primer beso del verdadero amor. (risas)
+Ajaja, sí, como si estas cosas pasaran, esto es pura mie... (tira del inodoro)
 
 Allstar - by Smashmouth begins to play. Shrek goes about his 
 day. While in a nearby town, the villagers get together to go 
