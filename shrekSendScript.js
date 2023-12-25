@@ -50,334 +50,294 @@ en el último cuarto de la torre más alta,
 a su primer amor, el primer beso del verdadero amor. (risas)
 Ajaja, sí, como si estas cosas pasaran, esto es pura mie... (tira del inodoro)
 
-Allstar - by Smashmouth begins to play. Shrek goes about his 
-day. While in a nearby town, the villagers get together to go 
-after the ogre.
+Allstar - por Smashmouth empieza a sonar, 
 
-NIGHT - NEAR SHREK'S HOME
+Allstar - by Smashmouth begins to play. Shrek hace
+las labores de su día a día. Mientras en un pueblo cercano, los aldeanos se juntan
+para ir tras el ogro.
 
-MAN1
-Think it's in there?
+NOCHE - CERCA DE LA CASA DE SHREK
 
-MAN2
-All right. Let's get it!
+HOMBRE1
+Debe estar adentro
 
-MAN1
-Whoa. Hold on. Do you know what that 
-thing can do to you?
+HOMBRE2
+Muy bien, ¡Vamos tras él!
 
-MAN3
-Yeah, it'll grind your bones for it's 
-bread.
+HOMBRE1
+Espera... ¿Sabes lo que esa cosa podría hacerte?
 
-Shrek sneaks up behind them and laughs.
+HOMBRE3
+Sí, si te pisa te dejará como calcomanía
 
-SHREK
-Yes, well, actually, that would be a 
-giant. Now, ogres, oh they're much worse. 
-They'll make a suit from your freshly 
-peeled skin.
-
-MEN
-No!
+Shrek se escabulle detrás de ellos y ríe.
 
 SHREK
-They'll shave your liver. Squeeze the 
-jelly from your eyes! Actually, it's 
-quite good on toast.
+Sí, en realidad eso haría un gigante.
 
-MAN1
-Back! Back, beast! Back! I warn ya! 
-(waves the torch at Shrek.)
-
-Shrek calmly licks his fingers and extinguishes the torch. The 
-men shrink back away from him. Shrek roars very loudly and long 
-and his breath extinguishes all the remaining torches until the 
-men are in the dark.
+HOMBRES
+¡Aaaahhh!
 
 SHREK
-This is the part where you run away. 
-(The men scramble to get away. He laughs.) 
-And stay out! (looks down and picks 
-up a piece of paper. Reads.) "Wanted. 
-Fairy tale creatures."(He sighs and 
-throws the paper over his shoulder.)
+Los ogros son mucho peor, ellos se hacen
+trajes con la piel que les quitan,
+se comen su hígado, extraen lo gelatinoso
+de sus ojos. Sabe muy bien con pan tostado.
 
+HOMBRE1
+¡Atrás, atrás, bestia! Si te acercas...
+(mueve la antorcha hacia Shrek.)
 
-THE NEXT DAY
+Shrek tranquilamente se lame sus dedos y apaga la antorcha.
 
-There is a line of fairy tale creatures. The head of the guard 
-sits at a table paying people for bringing the fairy tale creatures 
-to him. There are cages all around. Some of the people in line 
-are Peter Pan, who is carrying Tinkerbell in a cage, Gipetto 
-who's carrying Pinocchio, and a farmer who is carrying the three 
-little pigs.
+HOMBRE1
+Bien...
 
-GUARD
-All right. This one's full. Take it 
-away! Move it along. Come on! Get up!
+Los hombres retrodecen de él. Shrek ruge extremadamente fuerte
+y largo, haciendo que los hombres griten asustados
+y su aliento apaga todas las demás antorchas hasta que los
+hombres quedan en la oscuridad.
 
+SHREK
+Esta es la parte en la que salen corriendo.
+(Los hombres luchan por escapar. Él ríe.) 
+¡Y no se acerquen! (mira abajo y recoge
+un cartel. Lo lee.) "Se buscan.
+Recompensa por criaturas de cuentos de hadas."(Él suspira y 
+tira el cartel encima del hombro.)
 
-HEAD GUARD
-Next!
+EL DIA SIGUIENTE
 
-GUARD
-(taking the witch's broom) Give me that! 
-Your flying days are over. (breaks the 
-broom in half)
+Hay una fila de criaturas de cuentos de hadas. El jefe de la guardia
+está sentado en una mesa pagando a la gente por traerle las criaturas
+de los cuentos de hadas. Hay jaulas por todos lados. Algunas de las
+personas en la fila son Peter Pan, quién lleva a Tinkerbell en una jaula,
+Gepetto quién lleva a Pinocho y un granjero que lleva a los tres cerditos.
 
-HEAD GUARD
-That's 20 pieces of silver for the witch. 
-Next!
+GUARDIA
+¡Dame esa escoba! No volverás a volar.
 
-GUARD
-Get up! Come on!
+JEFE DE LA GUARDIA
+20 monedas de plata por la bruja, que pase el siguiente.
 
-HEAD GUARD
-Twenty pieces.
+GUARDIA
+¡Camina!
 
-LITTLE BEAR
-(crying) This cage is too small.
+OSO PEQUEÑO
+(llorando) Esta jaula está muy pequeña.
 
-DONKEY
-Please, don't turn me in. I'll never 
-be stubborn again. I can change. Please! 
-Give me another chance!
+BURRO
+Por favor no me dejes, ya no seré tan burro.
+Estudiaré, dame otra oportunidad.
 
-OLD WOMAN
-Oh, shut up. (jerks his rope)
+ANCIANA
+Ya cállate (tira de su cuerda)
 
-DONKEY
-Oh!
+BURRO
+Ohhhh!
 
-HEAD GUARD
-Next! What have you got?
+JEFE DE LA GUARDIA
+¡Siguiente! ¿Qué me traes?
 
-GIPETTO
-This little wooden puppet.
+GEPETTO
+A este títere de madera.
 
-PINOCCHIO
-I'm not a puppet. I'm a real boy. (his 
-nose grows)
+PINOCCHO
+No soy un títere, soy un niño de verdad. (le crece la nariz)
 
-HEAD GUARD
-Five shillings for the possessed toy. 
-Take it away.
+JEFE DE LA GUARDIA
+Cinco chelines por el juguete poseído.
+Llevenselo
 
-PINOCCHIO
-Father, please! Don't let them do this! 
-Help me!
+PINOCCHO
+¡Papi, por favor, no me dejes con ellos, ayudame!
 
-Gipetto takes the money and walks off. The old woman steps up 
-to the table.
+Gepetto toma el dinero y se va. La anciana avanza hacia
+la mesa.
 
-HEAD GUARD
-Next! What have you got?
+JEFE DE LA GUARDIA
+¡Siguiente! ¿Qué me traes?
 
-OLD WOMAN
-Well, I've got a talking donkey.
+ANCIANA
+Señor, yo traigo un burro que habla (tira nuevamente de la cuerda)
 
-HEAD GUARD
-Right. Well, that's good for ten shillings, 
-if you can prove it.
+JEFE DE LA GUARDIA
+Bien, te daré diez chelines si puedes probarlo
 
-OLD WOMAN
-Oh, go ahead, little fella.
+ANCIANA
+Oh, anda burrito, dile algo.
 
-Donkey just looks up at her.
+Burro solo la mira.
 
-HEAD GUARD
-Well?
+JEFE DE LA GUARDIA
+¿Bien?
 
-OLD WOMAN
-Oh, oh, he's just...he's just a little 
-nervous. He's really quite a chatterbox. 
-Talk, you boneheaded dolt...
+ANCIANA
+Oh, es que está un poco nervioso... Es una
+verdadera maravilla... ¡Habla burro cabeza
+de chorlito! ¡Habla!
 
-HEAD GUARD
-That's it. I've heard enough. Guards!
+JEFE DE LA GUARDIA
+Basta, ya oí suficiente ¡Guardias!
 
+ANCIANA
+No, no, no, si habla, en serio (pretende ser el burro)
+Puedo hablar, me encanta hablar, soy la criatura más parlanchina
+que has visto.
 
-OLD WOMAN
-No, no, he talks! He does. (pretends 
-to be Donkey) I can talk. I love to 
-talk. I'm the talkingest damn thing 
-you ever saw.
-
-HEAD GUARD
-Get her out of my sight.
+JEFE DE LA GUARDIA
+Quitenla de mi vista.
 
 OLD WOMAN
-No, no! I swear! Oh! He can talk!
+No, no, lo juro ¡Sueltenme!
 
-The guards grab the old woman and she struggles with them. One 
-of her legs flies out and kicks Tinkerbell out of Peter Pan's 
-hands, and her cage drops on Donkey's head. He gets sprinkled 
-with fairy dust and he's able to fly.
+Los guardias sujetan a la anciana y ella lucha contra ellos. Una de sus
+piernas sale volando y patea a Tinkerbell fuera de las manos de Peter Pan,
+y su jaula cae en la cabeza de Burro. Él se rocia con polvo de hada y empieza
+a volar.
 
-DONKEY
-Hey! I can fly!
+BURRO
+Oigan! ¡Puedo volar!
 
 PETER PAN
-He can fly!
+¡Puede volar!
 
-3 LITTLE PIGS
-He can fly!
+LOS 3 PEQUEÑOS CERDITOS
+¡Puede volar!
 
-HEAD GUARD
-He can talk!
+JEFE DE LA GUARDIA
+¡Puede hablar!
 
 DONKEY
-Ha, ha! That's right, fool! Now I'm 
-a flying, talking donkey. You might 
-have seen a housefly, maybe even a superfly 
-but I bet you ain't never seen a donkey 
-fly. Ha, ha! (the pixie dust begins 
-to wear off) Uh-oh. (he begins to sink 
-to the ground.)
+¡Jaja, así es tonto! Ahora soy un burro que habla
+y vuela ¿Han visto como su dinero vuela,
+o a Caperucita y la abuela? Pero a que nunca
+han visto como un burro vuela ¡Jajajaja!
+(el polvo de hada empieza a desaparecer) Oh-oh.
+(empieza a caerse hacia el suelo)
 
-He hits the ground with a thud.
+Se cae en el suelo con un gran estruendo.
 
-HEAD GUARD
-Seize him! (Donkey takes of running.) 
-After him!
+JEFE DE LA GUARDIA
+¡Atrapenlo! (Burro empieza a correr.)
+¡Que no escape!
 
-GUARDS
-He's getting away! Get him! This way! 
-Turn!
+GUARDIAS
+¡Que no escape! ¡Por acá! ¡Si señor!
 
-Donkey keeps running and he eventually runs into Shrek. Literally. 
-Shrek turns around to see who bumped into him. Donkey looks scared 
-for a moment then he spots the guards coming up the path. He 
-quickly hides behind Shrek.
+Burro sigue corriendo y finalmente choca con Shrek. Shrek se gira para ver
+quién lo golpeó. Burro mira asustado por un momento, luego, ve a los guardias
+yendo hacia él en el camino. Él se esconde rápidamente tras Shrek.
 
-HEAD GUARD
-You there. Ogre!
+JEFE DE LA GUARDIA
+¡Oye, ogro!
 
 SHREK
-Aye?
+¿Sí?
 
-HEAD GUARD
-By the order of Lord Farquaad I am authorized 
-to place you both under arrest and transport 
-you to a designated resettlement facility.
-
+JEFE DE LA GUARDIA
+Por ordenes de Lord Farquaad, estoy autorizado a ponerlos
+bajo arresto y transportarlos a un lugar dónde podrán reinstalarse
 
 SHREK
-Oh, really? You and what army?
+¡No me digas! ¿Tú y cuántos más?
 
-He looks behind the guard and the guard turns to look as well 
-and we see that the other men have run off. The guard tucks tail 
-and runs off. Shrek laughs and goes back about his business and 
-begins walking back to his cottage.
+Shrek mira tras el jefe de la guardia y él se gira y ve que
+todos los otros guardias salieron corriendo. El guardia se
+asusta y escapa. Shrek se ríe y vuelve a sus asuntos y camina
+vuelta a su cabaña.
 
-DONKEY
-Can I say something to you? Listen, 
-you was really, really, really somethin' 
-back here. Incredible!
-
-SHREK
-Are you talkin' to...(he turns around 
-and Donkey is gone) me? (he turns back 
-around and Donkey is right in front 
-of him.) Whoa!
-
-DONKEY
-Yes. I was talkin' to you. Can I tell 
-you that you that you was great back 
-here? Those guards! They thought they 
-was all of that. Then you showed up, 
-and bam! They was trippin' over themselves 
-like babes in the woods. That really 
-made me feel good to see that.
+BURRO
+¿Puedo decirte algo? ¡Increible reacción ante
+tal situación, fantástico!
 
 SHREK
-Oh, that's great. Really.
+¿Estás hablando con... migo? (se gira atrás 
+y Burro desapareció, luego se gira nuevamente
+y Burro aparece frente a él.)
 
-DONKEY
-Man, it's good to be free.
-
-SHREK
-Now, why don't you go celebrate your 
-freedom with your own friends? Hmm?
-
-
-DONKEY
-But, uh, I don't have any friends. And 
-I'm not goin' out there by myself. Hey, 
-wait a minute! I got a great idea! I'll 
-stick with you. You're mean, green, 
-fightin' machine. Together we'll scare 
-the spit out of anybody that crosses 
-us.
-
-Shrek turns and regards Donkey for a moment before roaring very 
-loudly.
-
-DONKEY
-Oh, wow! That was really scary. If you 
-don't mind me sayin', if that don't 
-work, your breath certainly will get 
-the job done, 'cause you definitely 
-need some Tic Tacs or something, 'cause 
-you breath stinks! You almost burned 
-the hair outta my nose, just like the 
-time...(Shrek covers his mouth but Donkey 
-continues to talk, so Shrek removes 
-his hand.) ...then I ate some rotten 
-berries. I had strong gases leaking 
-out of my butt that day.
+BURRO
+¡Claro! hablaba contigo, oyes, estuvistes enorme.
+Esos cuates me querían como burro de carga, pero llegaste
+así ¡BAM! patitas pa' que las quiero. Se jueron
+de volada. Jue muy chistoso verlos correr.
 
 SHREK
-Why are you following me?
+Genial. Que gusto.
 
-DONKEY
-I'll tell you why. (singing) 'Cause 
-I'm all alone, There's no one here beside 
-me, My problems have all gone, There's 
-no one to deride me, But you gotta have 
-faith...
+BURRO
+Ahh, que chido ser libre.
 
 SHREK
-Stop singing! It's no wonder you don't 
-have any friends.
+Ahora, ¿Por qué no te vas a celebrar tu libertad
+con tus amigos? ¿Hmm?
 
-DONKEY
-Wow. Only a true friend would be that 
-cruelly honest.
+BURRO
+Es, que, yo no tengo amigos, y no pienso ir
+al bosque yo solito. ¡Hey, tengo una ideota!
+me quedaré contigo. Tu eres verdederamente
+una máquina de pelea, haremos pomada a cualquiera.
+
+Shrek se gira mira a Burro por un momento antes de rugir muy
+fuerte.
+
+BURRO
+Uy ¡Wow! eso si que asusta. Y si el
+rugido no funciona tu mal aliento seguro
+los desmaya. Necesitas unas pastillitas de mentas
+¡porque el hocico te apesta! Traes el tufo
+como cuando me eché unas fresas podridas.
+(Shrek cubre la boca de burro pero este
+sigue hablando. Shrek remueve su mano)
+Hombre, pa' inflar un zeppelin con los gases
+que me salieron por detrás.
 
 SHREK
-Listen, little donkey. Take a look at 
-me. What am I?
+¡¿Por qué estás siguiendome?!
 
 DONKEY
-(looks all the way up at Shrek) Uh ...really 
-tall?
+Te diré porque. (empieza a cantar)
+Porque toi' solito, no hay nadie aquí
+a mi lado, no habrá problemas hoy,
+de mí ya se han burlado. Amigos debes tener...
 
 SHREK
-No! I'm an ogre! You know. "Grab your 
-torch and pitchforks." Doesn't that 
-bother you?
+¡Ya deja de cantar! Ahora entiendo porque no
+tienes amigos.
 
 DONKEY
-Nope.
+Wow. Solo un amigo dice la verdad tan cruda.
 
 SHREK
-Really?
+Escucha, pequeño burro, mírame bien, ¿ya viste que soy?
 
-DONKEY
-Really, really.
+BURRO
+(Mira de abajo hacia arriba a Shrek) Eres...
+¿Muy alto?
+
+SHREK
+¡Noooo, soy un ogro! Piensa, si te portas mal, el ogro
+te va a comer, ¿eso no te molesta?
+
+BURRO
+Nones.
+
+SHREK
+¿De veras?
+
+BURRO
+De veritas, de veritas.
 
 SHREK
 Oh.
 
-DONKEY
-Man, I like you. What's you name?
+BURRO
+Hasta me caes bien. ¿Cómo te llamas?
 
 SHREK
 Uh, Shrek.
 
-DONKEY
+BURRO
 Shrek? Well, you know what I like about 
 you, Shrek? You got that kind of I-don't-care-what-nobody-thinks-of-me 
 thing. I like that. I respect that, 
