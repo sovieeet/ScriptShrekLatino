@@ -1,17 +1,13 @@
-# SendScriptWhatsApp
+# ScriptShrekLatino
 
-Código para enviar o Script inteiro de Shrek ou Bee Movie para seus amigos ou grupos do WhatsApp
+Este es un código para enviar el script de Shrek en Español Latino por Whatsapp Web. Esto está basado en el repositorio original de [Matt-Fontes](https://github.com/Matt-Fontes/SendScriptWhatsApp)
 
-## Utilização
+## Uso
 
 Abra [shrekSendScript.js](https://github.com/Matt-Fontes/SendScriptWhatsApp/blob/main/shrekSendScript.js)
-Ou
-Abra [beeMovieSendScript.js](https://github.com/Matt-Fontes/SendScriptWhatsApp/blob/main/beeMovieSendScript.js)
 
-Copie todo o conteúdo (clique em raw -> ctrl+a -> ctrl+c)
+Copie todo el contenido del script (click en el archivo -> CTRL+A -> CTRL+C)
 
-No WhatsApp Web abra o console do Browser
+En el WhatsApp Web abra la consola de script con click derecho - inspeccionar elemento
 
-Cole o código no console e aperte Enter
-
-Pronto
+Copie el contenido del script en la consola y presione enter
