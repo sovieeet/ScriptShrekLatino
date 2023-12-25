@@ -4,7 +4,7 @@ Este es un código para enviar el script de Shrek en Español Latino por Whatsap
 
 ## Uso
 
-Abra [shrekSendScript.js](https://github.com/Matt-Fontes/SendScriptWhatsApp/blob/main/shrekSendScript.js)
+Abra [shrekSendScript.js](https://github.com/sovieeet/ScriptShrekLatino/blob/main/shrekSendScript.js)
 
 Copie todo el contenido del script (click en el archivo -> CTRL+A -> CTRL+C)
 
