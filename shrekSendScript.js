@@ -50,10 +50,8 @@ en el último cuarto de la torre más alta,
 a su primer amor, el primer beso del verdadero amor. (risas)
 Ajaja, sí, como si estas cosas pasaran, esto es pura mie... (tira del inodoro)
 
-Allstar - por Smashmouth empieza a sonar, 
-
-Allstar - by Smashmouth begins to play. Shrek hace
-las labores de su día a día. Mientras en un pueblo cercano, los aldeanos se juntan
+Allstar - por Smashmouth empieza a sonar, mientras Shrek hace
+su rutina diaria. Mientras en un pueblo cercano, los aldeanos se juntan
 para ir tras el ogro.
 
 NOCHE - CERCA DE LA CASA DE SHREK
@@ -208,7 +206,7 @@ LOS 3 PEQUEÑOS CERDITOS
 JEFE DE LA GUARDIA
 ¡Puede hablar!
 
-DONKEY
+BURRO
 ¡Jaja, así es tonto! Ahora soy un burro que habla
 y vuela ¿Han visto como su dinero vuela,
 o a Caperucita y la abuela? Pero a que nunca
@@ -295,7 +293,7 @@ que me salieron por detrás.
 SHREK
 ¡¿Por qué estás siguiendome?!
 
-DONKEY
+BURRO
 Te diré porque. (empieza a cantar)
 Porque toi' solito, no hay nadie aquí
 a mi lado, no habrá problemas hoy,
@@ -305,7 +303,7 @@ SHREK
 ¡Ya deja de cantar! Ahora entiendo porque no
 tienes amigos.
 
-DONKEY
+BURRO
 Wow. Solo un amigo dice la verdad tan cruda.
 
 SHREK
@@ -338,290 +336,267 @@ SHREK
 Uh, Shrek.
 
 BURRO
-Shrek? Well, you know what I like about 
-you, Shrek? You got that kind of I-don't-care-what-nobody-thinks-of-me 
-thing. I like that. I respect that, 
-Shrek. You all right. (They come over 
-a hill and you can see Shrek's cottage.) 
-Whoa! Look at that. Who'd want to live 
-in place like that?
+¿Shrek? ¿Sabes que me gusta de ti, Shrek?
+que eres de los cuates a los que le vale un comino
+los de los demás piensen de ti, eso es chido. Mis
+respetos, eres buena bestia. (Ellos llegan a lo alto de la colina
+dónde pueden ver la cabaña de Shrek)
+¡Whoa! Mira eso. ¿Quién querría vivir en ese cuchitril?
 
 SHREK
-That would be my home.
+Ese cuchitril es mi hogar.
 
-DONKEY
-Oh! And it is lovely! Just beautiful. 
-You know you are quite a decorator. 
-It's amazing what you've done with such 
-a modest budget. I like that boulder. 
-That is a nice boulder. I guess you 
-don't entertain much, do you?
+BURRO
+¡Oh, es adorable y hermoso! Eres un gran decorador,
+lo que alguien con talento puede hacer con poco
+presupuesto. Oh, que linda piedra, un detalle
+soberbio.
 
-SHREK
-I like my privacy.
+Burro ve un cartel que dice cuidado con el ogro.
 
-DONKEY
-You know, I do too. That's another thing 
-we have in common. Like I hate it when 
-you got somebody in your face. You've 
-trying to give them a hint, and they 
-won't leave. There's that awkward silence. 
-(awkward silence) Can I stay with you?
-
+BURRO
+¿Cuidado con el ogro? No creo que tengas muchos amigos ¿o sí?
 
 SHREK
-Uh, what?
+Me gusta mi privacidad.
 
-DONKEY
-Can I stay with you, please?
+BURRO
+Ay, a mi también. Es otra cosa que tenemos en común.
+Odio cuando alguien está dando lata, le echas indirectas
+y como no entiende pues no se va. Y luego el silencio
+¿A poco no? (Silencio momentáneo) ¿Puedo quedarme?
 
 SHREK
-(sarcastically) Of course!
+Uhh, ¿qué?
 
-DONKEY
-Really?
+BURRO
+¿Puedo quedarme aquí? porfis.
+
+SHREK
+(sarcasticamente) ¡Oh claro!
+
+BURRO
+¿De veras?
 
 SHREK
 No.
 
-DONKEY
-Please! I don't wanna go back there! 
-You don't know what it's like to be 
-considered a freak. (pause while he 
-looks at Shrek) Well, maybe you do. 
-But that's why we gotta stick together. 
-You gotta let me stay! Please! Please!
-
+BURRO
+¡Por favor, no quiero regresar! No sabes
+que gacho es que te consideren un monstruo.
+(pausa mientras él mira a Shrek)
+Bueno, a lo mejor si. Por eso debemos estar unidos,
+dejame quedarme ¿a que sí? porfis, porfis.
 
 SHREK
-Okay! Okay! But one night only.
+¡De acuerdo, quedate! pero solo una noche.
 
-DONKEY
-Ah! Thank you! (he runs inside the cottage)
-
-
-SHREK
-What are you...? (Donkey hops up onto 
-a chair.) No! No!
-
-DONKEY
-This is gonna be fun! We can stay up 
-late, swappin' manly stories, and in 
-the mornin' I'm makin' waffles.
+BURRO
+¡Oh, gracias! (entra corriendo a la cabaña)
 
 SHREK
-Oh!
+¿Qué? ¡No, no! (Burro se echa encima de una silla)
 
-DONKEY
-Where do, uh, I sleep?
-
-SHREK
-(irritated) Outside!
-
-DONKEY
-Oh, well, I guess that's cool. I mean, 
-I don't know you, and you don't know 
-me, so I guess outside is best, you 
-know. Here I go. Good night. (Shrek 
-slams the door.) (sigh) I mean, I do 
-like the outdoors. I'm a donkey. I was 
-born outside. I'll just be sitting by 
-myself outside, I guess, you know. By 
-myself, outside. I'm all alone...there's 
-no one here beside me...
-
-SHREK'S COTTAGE - NIGHT
-
-Shrek is getting ready for dinner. He sits himself down and lights 
-a candle made out of earwax. He begins to eat when he hears a 
-noise. He stands up with a huff.
+BURRO
+¡Será tan divertido! nos desvelaremos contandonos
+historias macabras de humanos y en la mañana,
+yo preparo los tamales.
 
 SHREK
-(to Donkey) I thought I told you to 
-stay outside.
+¡Oh!
 
-DONKEY
-(from the window) I am outside.
+BURRO
+¿En dónde, dormiré yo?
 
-There is another noise and Shrek turns to find the person that 
-made the noise. He sees several shadows moving. He finally turns 
-and spots 3 blind mice on his table.
+SHREK
+(Irritado) ¡Afuera!
 
-BLIND MOUSE1
-Well, gents, it's a far cry from the 
-farm, but what choice do we have?
+BURRO
+Ah caray, que padre, digo, claro, no te conozco
+ni tu a mi, asi que prefiero dormir ajuera ¿no?
+buenas noches
+(Shrek cierra la puerta de un portazo.) (suspiro) 
+Ay, me gusta el aire libre, soy un burro,
+pero si estoy solito me aburro... pero ya estoy
+acostumbrado... toi solito, no hay nadie aquí a mi lado...
 
+CABAÑA DE SHREK - NOCHE
 
-BLIND MOUSE2
-It's not home, but it'll do just fine.
+Shrek se prepara la cena. Se sienta y enciende una vela hecha de cera
+de oídos. Empieza a comer cuando escucha un ruido. Se levanta
+rapidamente.
 
+SHREK
+(hacia Burro) ¿Qué no te dije que te quedaras afuera?
+
+BURRO
+(desde la ventana) Estoy ajuera.
+
+Hayh otro ruido y Shrek se gira para encontrar la persona que hizo el ruido.
+Ve varias sombras moviendose. Finalmente se gira y ve a los 3 ratones ciegos
+sobre la mesa.
+
+RATON CIEGO1
+Muy bien chicos, es muy diferente a la granja
+pero no hay de otra.
+
+RATON CIEGO2
+No es como en casa pero estaremos bien.
 
 GORDO
-(bouncing on a slug) What a lovely bed.
-
-
-SHREK
-Got ya. (Grabs a mouse, but it escapes 
-and lands on his shoulder.)
-
-GORDO
-I found some cheese. (bites Shrek's 
-ear)
+(Rebotando en una babosa) La cama es cómoda.
 
 SHREK
-Ow!
+Te tengo. (Agarra un ratón, pero se escapa y
+se apoya sobre el hombro de Shrek.)
 
 GORDO
-Blah! Awful stuff.
-
-BLIND MOUSE1
-Is that you, Gordo?
-
-GORDO
-How did you know?
+¡Encontre queso! (muerde la oreja de Shrek)
 
 SHREK
-Enough! (he grabs the 3 mice) What are 
-you doing in my house? (He gets bumped 
-from behind and he drops the mice.) 
-Hey! (he turns and sees the Seven Dwarves 
-with Snow White on the table.) Oh, no, 
-no, no. Dead broad off the table.
+¡Au!
 
+GORDO
+Esta duro y rancio.
+
+RATON CIEGO1
+¿Eres tú, gordo?
+
+GORDO
+¿Como lo supiste?
+
+SHREK
+¡Basta! (agarra a los 3 ratones)
+¿Qué están haciendo en mi casa?
+(Shrek es golpeado por detrás y suelta a los 3 ratones.) 
+¡Hey! (Se voltea y ve a loos siete enanitos con Blancanieves
+sobre la mesa) Ah, no, no, no. A la vieja muerta me la bajan
+de la mesa.
 
 DWARF
-Where are we supposed to put her? The 
-bed's taken.
+¿Dónde vamos a ponerla? La cama está ocupada.
 
 SHREK
-Huh?
+¿Ah?
 
-Shrek marches over to the bedroom and throws back the curtain. 
-The Big Bad Wolf is sitting in the bed. The wolf just looks at 
-him.
+Shrek va hacia su habitación y tira la cortina. El Lobo está
+acostado en la cama. El lobo solo mira a Shrek.
 
-BIG BAD WOLF
-What?
+LOBO
+¿Qué?
 
-TIME LAPSE
+SALTO DE TIEMPO
 
-Shrek now has the Big Bad Wolf by the collar and is dragging 
-him to the front door.
-
-SHREK
-I live in a swamp. I put up signs. I'm 
-a terrifying ogre! What do I have to 
-do get a little privacy? (He opens the 
-front door to throw the Wolf out and 
-he sees that all the collected Fairy 
-Tale Creatures are on his land.) Oh, 
-no. No! No!
-
-The 3 bears sit around the fire, the pied piper is playing his 
-pipe and the rats are all running to him, some elves are directing 
-flight traffic so that the fairies and witches can land...etc.
-
+Shrek tiene agarrado al lobo por el collar y lo está arrastrando
+hacia la puerta de la cabaña.
 
 SHREK
-What are you doing in my swamp? (this 
-echoes and everyone falls silent.)
+Vivo en un pantano. Les pongo letreros.
+Soy un ogro aterrador. ¿Qué tengo que hacer
+para poder conservar mi privacidad?
+(Abre la puerta para tirar el lobo out y
+ve todas las criaturas de los cuentos de hada
+en su pantano) Oh, no. Oh, no. ¡Noooooooo!
 
-
-Gasps are heard all around. The 3 good fairies hide inside a 
-tent.
-
-SHREK
-All right, get out of here. All of you, 
-move it! Come on! Let's go! Hapaya! 
-Hapaya! Hey! Quickly. Come on! (more 
-dwarves run inside the house) No, no! 
-No, no. Not there. Not there. (they 
-shut the door on him) Oh! (turns to 
-look at Donkey)
-
-DONKEY
-Hey, don't look at me. I didn't invite 
-them.
-
-PINOCCHIO
-Oh, gosh, no one invited us.
+Los 3 osos están sentados alrededor de una fogata. El flautista
+de Hamelín está tocando su flauta y las ratas corren hacia él.,
+algunos elfos están dirigiendo el trafico así las hadas y brujas
+pueden aterrizar... etc.
 
 SHREK
-What?
+¿Qué están haciendo en mi pantano?
+(Se produce un gran eco y todos quedan en silencio.)
 
-PINOCCHIO
-We were forced to come here.
-
-SHREK
-(flabbergasted) By who?
-
-LITTLE PIG
-Lord Farquaad. He huffed and he puffed 
-and he...signed an eviction notice.
-
+Se escuchan jadeos alrededor. Las 3 hadas se esconden dentro
+de una carpa.
 
 SHREK
-(heavy sigh) All right. Who knows where 
-this Farquaad guy is?
+¡Muy bien, salgan de aquí, fuera todos!
+¡Muevanse, vamos! ¡Húscale!
+(más enanos corren hacia la cabaña de Shrek)
+¡No, no! ¡Ahí no, ahí no!
+(Ponen seguro a la puerta) ¡Ay! (Se gira
+a mirar a burro)
 
-Everyone looks around at each other but no one answers.
+BURRO
+A mí ni me veas, yo no los invité.
 
-DONKEY
-Oh, I do. I know where he is.
-
-SHREK
-Does anyone else know where to find 
-him? Anyone at all?
-
-DONKEY
-Me! Me!
+PINOCCHO
+Ya sabemos que nadie nos invitó.
 
 SHREK
-Anyone?
+¿Qué?
 
-DONKEY
-Oh! Oh, pick me! Oh, I know! I know! 
-Me, me!
-
-SHREK
-(sigh) Okay, fine. Attention, all fairy 
-tale things. Do not get comfortable. 
-Your welcome is officially worn out. 
-In fact, I'm gonna see this guy Farquaad 
-right now and get you all off my land 
-and back where you came from! (Pause. 
-Then the crowd goes wild.) Oh! (to Donkey) 
-You! You're comin' with me.
-
-DONKEY
-All right, that's what I like to hear, 
-man. Shrek and Donkey, two stalwart 
-friends, off on a whirlwind big-city 
-adventure. I love it!
-
-DONKEY
-(singing) On the road again. Sing it 
-with me, Shrek. I can't wait to get 
-on the road again.
+PINOCCHO
+Nos obligaron a venir aquí.
 
 SHREK
-What did I say about singing?
+(asombrado) ¿Pero quién?
 
-DONKEY
-Can I whistle?
+PEQUEÑO CERDITO
+Lord Farquaad. Bufo, y sopló, y luego...
+Firmó un aviso de desalojo.
+
+SHREK
+(suspiro fuerte) Ah, entiendo. ¿Quién sabe en
+dónde vive ese tal Farquaad?
+
+Todos se miran pero nadie responde.
+
+BURRO
+Oh, yo sé, yo sé dónde vive.
+
+SHREK
+¿Hay algún otro que sepa dónde encontrarlo?
+¿Alguien lo sabe?
+
+BURRO
+¡Yo! ¡Yo!
+
+SHREK
+¿Alguien?
+
+BURRO
+¡Yo sé! ¡Yo sé! ¡Preguntame, preguntame!
+
+SHREK
+(suspiro) Ay, de acuerdo. Que otra.
+Atención a todas las criaturas de cuentos
+de hadas. Ni se acomoden. Aquí ninguno es
+oficialmente bienvenido. Escuchen, voy a ir
+a ese tal Farquaad justo ahora para que salgan
+de mis tierras y regrese cada quién a su cuento.
+(Pausa. Luego la multitud se vuelve loca y aplaude.)
+Oh... noo... (hacia Burro) 
+Tú, tu vendrás conmigo.
+
+BURRO
+Sí señor, eso es lo que quería escuchar.
+Shrek y Burro, dos amigos que van en busca
+de una gran aventura, ¡Qué chido!
+
+BURRO
+(cantando) Al camino voy, ¡Canta conmigo Shrek!,
+no puedo esperar, al camino voy
+
+SHREK
+¿Qué fue lo que te dije sobre cantar?
+
+BURRO
+¿Puedo chiflar?
 
 SHREK
 No.
 
-DONKEY
-Can I hum it?
+BURRO
+¿Y si la tarareo?
 
 SHREK
-All right, hum it.
+Está bien. Tararea.
 
-Donkey begins to hum 'On the Road Again'.
+Burro empieza a tararear 'Al camino voy'.
 
-DULOC - KITCHEN
+DULOC - COCINA
 
 A masked man is torturing the Gingerbread Man. He's continually 
 dunking him in a glass of milk. Lord Farquaad walks in.
@@ -818,7 +793,7 @@ DuLoc Parking Lot - Lancelot Section
 Shrek and Donkey come out of the field that is right by the parking 
 lot. The castle itself is about 40 stories high.
 
-DONKEY
+BURRO
 But that's it. That's it right there. 
 That's DuLoc. I told ya I'd find it.
 
@@ -827,7 +802,7 @@ SHREK
 So, that must be Lord Farquaad's castle.
 
 
-DONKEY
+BURRO
 Uh-huh. That's the place.
 
 SHREK
@@ -837,7 +812,7 @@ groans as Donkey doesn't get the joke.
 He continues walking through the parking 
 lot.)
 
-DONKEY
+BURRO
 Hey, wait. Wait up, Shrek.
 
 MAN
@@ -865,7 +840,7 @@ SHREK
 It's quiet. Too quiet. Where is everybody?
 
 
-DONKEY
+BURRO
 Hey, look at this!
 
 Donkey runs over and pulls a lever that is attached to a box 
@@ -897,7 +872,7 @@ DuLoc is perfect place.
 
 Suddenly a camera takes Donkey and Shrek's picture.
 
-DONKEY
+BURRO
 Wow! Let's do that again! (makes ready 
 to run over and pull the lever again)
 
@@ -920,7 +895,7 @@ SHREK
 All right. You're going the right way 
 for a smacked bottom.
 
-DONKEY
+BURRO
 Sorry about that.
 
 FARQUAAD
@@ -978,7 +953,7 @@ Donkey manages to squish two men into the mud. There is so much
 fighting going on here I'm not going to go into detail. Suffice 
 to say that Shrek kicks butt.
 
-DONKEY
+BURRO
 Hey, Shrek, tag me! Tag me!
 
 Shrek comes over and bangs a man's head up against Donkeys. Shrek 
@@ -1055,7 +1030,7 @@ What kind of quest?
 Time Lapse - Donkey and Shrek are now walking through the field 
 heading away from DuLoc. Shrek is munching on an onion.
 
-DONKEY
+BURRO
 Let me get this straight. You're gonna 
 go fight a dragon and rescue a princess 
 just so Farquaad will give you back 
@@ -1067,7 +1042,7 @@ SHREK
 You know, maybe there's a good reason 
 donkeys shouldn't talk.
 
-DONKEY
+BURRO
 I don't get it. Why don't you just pull 
 some of that ogre stuff on him? Throttle 
 him, lay siege to his fortress, grinds 
@@ -1082,33 +1057,33 @@ cut open their spleen and drink their
 fluids. Does that sound good to you?
 
 
-DONKEY
+BURRO
 Uh, no, not really, no.
 
 SHREK
 For your information, there's a lot 
 more to ogres than people think.
 
-DONKEY
+BURRO
 Example?
 
 SHREK
 Example? Okay, um, ogres are like onions. 
 (he holds out his onion)
 
-DONKEY
+BURRO
 (sniffs the onion) They stink?
 
 SHREK
 Yes - - No!
 
-DONKEY
+BURRO
 They make you cry?
 
 SHREK
 No!
 
-DONKEY
+BURRO
 You leave them in the sun, they get 
 all brown, start sproutin' little white 
 hairs.
@@ -1119,7 +1094,7 @@ have layers! Onions have layers. You
 get it? We both have layers. (he heaves 
 a sigh and then walks off)
 
-DONKEY
+BURRO
 (trailing after Shrek) Oh, you both 
 have layers. Oh. {Sniffs} You know, 
 not everybody likes onions. Cake! Everybody 
@@ -1129,7 +1104,7 @@ SHREK
 I don't care... what everyone likes. 
 Ogres are not like cakes.
 
-DONKEY
+BURRO
 You know what else everybody likes? 
 Parfaits. Have you ever met a person, 
 you say, "Let's get some parfait," they 
@@ -1142,7 +1117,7 @@ beast of burden! Ogres are like onions!
 And of story. Bye-bye. See ya later.
 
 
-DONKEY
+BURRO
 Parfaits may be the most delicious thing 
 on the whole damn planet.
 
@@ -1150,7 +1125,7 @@ SHREK
 You know, I think I preferred your humming.
 
 
-DONKEY
+BURRO
 Do you have a tissue or something? I'm 
 making a mess. Just the word parfait 
 make me start slobbering.
@@ -1166,7 +1141,7 @@ Shrek and Donkey are walking up to the keep that's supposed to
 house Princess Fiona. It appears to look like a giant volcano.
 
 
-DONKEY
+BURRO
 (sniffs) Ohh! Shrek! Did you do that? 
 You gotta warn somebody before you just 
 crack one off. My mouth was open and 
@@ -1177,7 +1152,7 @@ Believe me, Donkey, if it was me, you'd
 be dead. (sniffs) It's brimstone. We 
 must be getting close.
 
-DONKEY
+BURRO
 Yeah, right, brimstone. Don't be talking 
 about it's the brimstone. I know what 
 I smell. It wasn't no brimstone. It 
@@ -1194,14 +1169,14 @@ Sure, it's big enough, but look at the
 location. (laughs...then the laugh turns 
 into a groan)
 
-DONKEY
+BURRO
 Uh, Shrek? Uh, remember when you said 
 ogres have layers?
 
 SHREK
 Oh, aye.
 
-DONKEY
+BURRO
 Well, I have a bit of a confession to 
 make. Donkeys don't have layers. We 
 wear our fear right out there on our 
@@ -1211,14 +1186,14 @@ SHREK
 Wait a second. Donkeys don't have sleeves.
 
 
-DONKEY
+BURRO
 You know what I mean.
 
 SHREK
 You can't tell me you're afraid of heights.
 
 
-DONKEY
+BURRO
 No, I'm just a little uncomfortable 
 about being on a rickety bridge over 
 a boiling like of lava!
@@ -1229,13 +1204,13 @@ ya, okay? For emotional support., we'll
 just tackle this thing together one 
 little baby step at a time.
 
-DONKEY
+BURRO
 Really?
 
 SHREK
 Really, really.
 
-DONKEY
+BURRO
 Okay, that makes me feel so much better.
 
 
@@ -1243,7 +1218,7 @@ SHREK
 Just keep moving. And don't look down.
 
 
-DONKEY
+BURRO
 Okay, don't look down. Don't look down. 
 Don't look down. Keep on moving. Don't 
 look down. (he steps through a rotting 
@@ -1255,14 +1230,14 @@ off, please!
 SHREK
 But you're already halfway.
 
-DONKEY
+BURRO
 But I know that half is safe!
 
 SHREK
 Okay, fine. I don't have time for this. 
 You go back.
 
-DONKEY
+BURRO
 Shrek, no! Wait!
 
 SHREK
@@ -1270,14 +1245,14 @@ Just, Donkey - - Let's have a dance
 then, shall me? (bounces and sways the 
 bridge)
 
-DONKEY
+BURRO
 Don't do that!
 
 SHREK
 Oh, I'm sorry. Do what? Oh, this? (bounces 
 the bridge again)
 
-DONKEY
+BURRO
 Yes, that!
 
 SHREK
@@ -1285,13 +1260,13 @@ Yes? Yes, do it. Okay. (continues to
 bounce and sway as he backs Donkey across 
 the bridge)
 
-DONKEY
+BURRO
 No, Shrek! No! Stop it!
 
 SHREK
 You said do it! I'm doin' it.
 
-DONKEY
+BURRO
 I'm gonna die. I'm gonna die. Shrek, 
 I'm gonna die. (steps onto solid ground) 
 Oh!
@@ -1300,7 +1275,7 @@ SHREK
 That'll do, Donkey. That'll do. (walks 
 towards the castle)
 
-DONKEY
+BURRO
 Cool. So where is this fire-breathing 
 pain-in-the-neck anyway?
 
@@ -1308,25 +1283,25 @@ SHREK
 Inside, waiting for us to rescue her. 
 (chuckles)
 
-DONKEY
+BURRO
 I was talkin' about the dragon, Shrek.
 
 
 INSIDE THE CASTLE
 
-DONKEY
+BURRO
 You afraid?
 
 SHREK
 No.
 
-DONKEY
+BURRO
 But...
 
 SHREK
 Shh.
 
-DONKEY
+BURRO
 Oh, good. Me neither. (sees a skeleton 
 and gasps) 'Cause there's nothin' wrong 
 with bein' afraid. Fear's a sensible 
@@ -1344,7 +1319,7 @@ Donkey, two things, okay? Shut ... up.
 Now go over there and see if you can 
 find any stairs.
 
-DONKEY
+BURRO
 Stairs? I thought we was lookin' for 
 the princess.
 
@@ -1353,7 +1328,7 @@ SHREK
 be up the stairs in the highest room 
 in the tallest tower.
 
-DONKEY
+BURRO
 What makes you think she'll be there?
 
 
@@ -1361,7 +1336,7 @@ SHREK
 I read it in a book once. (walks off)
 
 
-DONKEY
+BURRO
 Cool. You handle the dragon. I'll handle 
 the stairs. I'll find those stairs. 
 I'll whip their butt too. Those stairs 
@@ -1373,7 +1348,7 @@ EMPTY ROOM
 Donkey is still talking to himself as he looks around the room.
 
 
-DONKEY
+BURRO
 I'm gonna take drastic steps. Kick it 
 to the curb. Don't mess with me. I'm 
 the stair master. I've mastered the 
@@ -1388,7 +1363,7 @@ SHREK
 Well, at least we know where the princess 
 is, but where's the...
 
-DONKEY
+BURRO
 (os) Dragon!
 
 Donkey gasps and takes off running as the dragon roars again. 
@@ -1405,13 +1380,13 @@ goes flying through the air and crashes through the roof of the
 tallest tower. Fiona wakes up with a jerk and looks at him lying 
 on the floor.
 
-DONKEY
+BURRO
 Oh! Aah! Aah!
 
 Donkey get cornered as the Dragon knocks away all but a small 
 part of the bridge he's on.
 
-DONKEY
+BURRO
 No. Oh, no, No! (the dragon roars) Oh, 
 what large teeth you have. (the dragon 
 growls) I mean white, sparkling teeth. 
@@ -1553,7 +1528,7 @@ SHREK
 One of a kind. (opens the door into 
 the throne room)
 
-DONKEY
+BURRO
 (os) Slow down. Slow down, baby, please. 
 I believe it's healthy to get to know 
 someone over a long period of time. 
@@ -1591,7 +1566,7 @@ a sort of collar for her. She roars again and Shrek and Donkey
 take off running. Very 'Matrix' style. Shrek grabs Donkey and 
 then grabs Princess Fiona as he runs past her.
 
-DONKEY
+BURRO
 Hi, Princess!
 
 FIONA
@@ -1650,7 +1625,7 @@ his throat.) And where would a brave
 knight be without his noble steed?
 
 
-DONKEY
+BURRO
 I hope you heard that. She called me 
 a noble steed. She think I'm a steed.
 
@@ -1682,7 +1657,7 @@ SHREK
 What? (to Donkey) That wasn't in the 
 job description.
 
-DONKEY
+BURRO
 Maybe it's a perk.
 
 FIONA
@@ -1692,7 +1667,7 @@ tower and beset by a dragon is rescued
 by a brave knight, and then they share 
 true love's first kiss.
 
-DONKEY
+BURRO
 Hmm? With Shrek? You think- - Wait. 
 Wait. You think that Shrek is you true 
 love?
@@ -1702,7 +1677,7 @@ Well, yes.
 
 Both Donkey and Shrek burst out laughing.
 
-DONKEY
+BURRO
 You think Shrek is your true love!
 
 
@@ -1767,7 +1742,7 @@ But I have to be rescued by my true
 love, not by some ogre and his- - his 
 pet.
 
-DONKEY
+BURRO
 Well, so much for noble steed.
 
 SHREK
@@ -1793,7 +1768,7 @@ You wouldn't dare. Put me down!
 SHREK
 Ya comin', Donkey?
 
-DONKEY
+BURRO
 I'm right behind ya.
 
 FIONA
@@ -1806,7 +1781,7 @@ WOODS
 A little time has passed and Fiona has calmed down. She just 
 hangs there limply while Shrek carries her.
 
-DONKEY
+BURRO
 Okay, so here's another question. Say 
 there's a woman that digs you, right, 
 but you don't really like her that way. 
@@ -1821,7 +1796,7 @@ you find your...(Shrek drops her on
 the ground) Hey! The sooner we get to 
 DuLoc the better.
 
-DONKEY
+BURRO
 You're gonna love it there, Princess. 
 It's beautiful!
 
@@ -1837,7 +1812,7 @@ of Farquaad's stature are in short supply.
 Shrek then proceeds to splash water onto his face to wash off 
 the dust and grime.
 
-DONKEY
+BURRO
 I don't know. There are those who think 
 little of him. (they laugh again) Fiona: 
 Stop it. Stop it, both of you. You're 
@@ -1862,7 +1837,7 @@ going.
 FIONA
 But there's robbers in the woods.
 
-DONKEY
+BURRO
 Whoa! Time out, Shrek! Camp is starting 
 to sound good.
 
@@ -1886,7 +1861,7 @@ a stone boulder out of the way to reveal the cave.
 SHREK
 Hey! Over here.
 
-DONKEY
+BURRO
 Shrek, we can do better than that. I 
 don't think this is fit for a princess.
 
@@ -1907,7 +1882,7 @@ good night. (goes into the cave and
 puts the bark door up behind her)
 
 
-DONKEY
+BURRO
 You want me to read you a bedtime story? 
 I will.
 
@@ -1918,7 +1893,7 @@ Shrek looks at Donkey for a second and then goes to move the
 boulder back in front of the entrance to the cave with Fiona 
 still inside.
 
-DONKEY
+BURRO
 Shrek, What are you doing?
 
 SHREK
@@ -1936,7 +1911,7 @@ And, uh, that one, that's Throwback,
 the only ogre to ever spit over three 
 wheat fields.
 
-DONKEY
+BURRO
 Right. Yeah. Hey, can you tell my future 
 from these stars?
 
@@ -1946,7 +1921,7 @@ They tell stories. Look, there's Bloodnut,
 the Flatulent. You can guess what he's 
 famous for.
 
-DONKEY
+BURRO
 I know you're making this up.
 
 SHREK
@@ -1954,7 +1929,7 @@ No, look. There he is, and there's the
 group of hunters running away from his 
 stench.
 
-DONKEY
+BURRO
 That ain't nothin' but a bunch of little 
 dots.
 
@@ -1963,7 +1938,7 @@ You know, Donkey, sometimes things are
 more than they appear. Hmm? Forget it.
 
 
-DONKEY
+BURRO
 (heaves a big sigh) Hey, Shrek, what 
 we gonna do when we get our swamp anyway?
 
@@ -1971,7 +1946,7 @@ we gonna do when we get our swamp anyway?
 SHREK
 Our swamp?
 
-DONKEY
+BURRO
 You know, when we're through rescuing 
 the princess.
 
@@ -1981,7 +1956,7 @@ no "our". There's just me and my swamp.
 The first thing I'm gonna do is build 
 a ten-foot wall around my land.
 
-DONKEY
+BURRO
 You cut me deep, Shrek. You cut me real 
 deep just now. You know what I think? 
 I think this whole wall thing is just 
@@ -1990,13 +1965,13 @@ a way to keep somebody out.
 SHREK
 No, do ya think?
 
-DONKEY
+BURRO
 Are you hidin' something?
 
 SHREK
 Never mind, Donkey.
 
-DONKEY
+BURRO
 Oh, this is another one of those onion 
 things, isn't it?
 
@@ -2004,32 +1979,32 @@ SHREK
 No, this is one of those drop-it and 
 leave-it alone things.
 
-DONKEY
+BURRO
 Why don't you want to talk about it?
 
 
 SHREK
 Why do you want to talk about it?
 
-DONKEY
+BURRO
 Why are you blocking?
 
 SHREK
 I'm not blocking.
 
-DONKEY
+BURRO
 Oh, yes, you are.
 
 SHREK
 Donkey, I'm warning you.
 
-DONKEY
+BURRO
 Who you trying to keep out?
 
 SHREK
 Everyone! Okay?
 
-DONKEY
+BURRO
 (pause) Oh, now we're gettin' somewhere. 
 (grins)
 
@@ -2041,7 +2016,7 @@ Oh! For the love of Pete! (gets up and
 walks over to the edge of the cliff 
 and sits down)
 
-DONKEY
+BURRO
 What's your problem? What you got against 
 the whole world anyway?
 
@@ -2054,7 +2029,7 @@ stupid, ugly ogre!" They judge me before
 they even know me. That's why I'm better 
 off alone.
 
-DONKEY
+BURRO
 You know what? When we met, I didn't 
 think you was just a big, stupid, ugly 
 ogre.
@@ -2062,7 +2037,7 @@ ogre.
 SHREK
 Yeah, I know.
 
-DONKEY
+BURRO
 So, uh, are there any donkeys up there?
 
 
@@ -2070,7 +2045,7 @@ SHREK
 Well, there's, um, Gabby, the Small 
 and Annoying.
 
-DONKEY
+BURRO
 Okay, okay, I see it now. The big shiny 
 one, right there. That one there?
 
@@ -2080,7 +2055,7 @@ Fiona puts the door back.
 SHREK
 That's the moon.
 
-DONKEY
+BURRO
 Oh, okay.
 
 DuLoc - Farquaad's Bedroom
@@ -2120,7 +2095,7 @@ is now cooking the eggs for breakfast. Shrek and Donkey are still
 sleeping. Shrek wakes up and looks at Fiona. Donkey's talking 
 in his sleep.
 
-DONKEY
+BURRO
 (quietly) Mmm, yeah, you know I like 
 it like that. Come on, baby. I said 
 I like it.
@@ -2128,20 +2103,20 @@ I like it.
 SHREK
 Donkey, wake up. (shakes him)
 
-DONKEY
+BURRO
 Huh? What?
 
 SHREK
 Wake up.
 
-DONKEY
+BURRO
 What? (stretches and yawns)
 
 FIONA
 Good morning. Hm, how do you like your 
 eggs?
 
-DONKEY
+BURRO
 Oh, good morning, Princess!
 
 Fiona gets up and sets the eggs down in front of them.
@@ -2169,14 +2144,14 @@ LATER
 They are once again on their way. They are walking through the 
 forest. Shrek belches.
 
-DONKEY
+BURRO
 Shrek!
 
 SHREK
 What? It's a compliment. Better out 
 than in, I always say. (laughs)
 
-DONKEY
+BURRO
 Well, it's no way to behave in front 
 of a princess.
 
@@ -2185,7 +2160,7 @@ Fiona belches
 FIONA
 Thanks.
 
-DONKEY
+BURRO
 She's as nasty as you are.
 
 SHREK
@@ -2337,20 +2312,20 @@ FIONA
 Oh, no. This is all my fault. I'm so 
 sorry.
 
-DONKEY
+BURRO
 (walking up) Why? What's wrong?
 
 FIONA
 Shrek's hurt.
 
-DONKEY
+BURRO
 Shrek's hurt. Shrek's hurt? Oh, no, 
 Shrek's gonna die.
 
 SHREK
 Donkey, I'm okay.
 
-DONKEY
+BURRO
 You can't do this to me, Shrek. I'm 
 too young for you to die. Keep you legs 
 elevated. Turn your head and cough. 
@@ -2361,7 +2336,7 @@ Donkey! Calm down. If you want to help
 Shrek, run into the woods and find me 
 a blue flower with red thorns.
 
-DONKEY
+BURRO
 Blue flower, red thorns. Okay, I'm on 
 it. Blue flower, red thorns. Don't die 
 Shrek. If you see a long tunnel, stay 
@@ -2370,7 +2345,7 @@ away from the light!
 SHREK & FIONA
 Donkey!
 
-DONKEY
+BURRO
 Oh, yeah. Right. Blue flower, red thorns. 
 (runs off)
 
@@ -2426,7 +2401,7 @@ ELSEWHERE
 
 Donkey is still looking for the special flower.
 
-DONKEY
+BURRO
 Blue flower, red thorns. Blue flower, 
 red thorns. Blue flower, red thorns. 
 This would be so much easier if I wasn't 
@@ -2436,7 +2411,7 @@ color-blind! Blue flower, red thorns.
 SHREK
 (os) Ow!
 
-DONKEY
+BURRO
 Hold on, Shrek! I'm comin'! (rips a 
 flower off a nearby bush that just happens 
 to be a blue flower with red thorns)
@@ -2456,14 +2431,14 @@ SHREK
 Ow! Ohh! (he jerks and manages to fall 
 over with Fiona on top of him)
 
-DONKEY
+BURRO
 Ahem.
 
 SHREK
 (throwing Fiona off of him) Nothing 
 happend. We were just, uh - -
 
-DONKEY
+BURRO
 Look, if you wanted to be alone, all 
 you had to do was ask. Okay?
 
@@ -2474,7 +2449,7 @@ my mind. The princess here was just-
 turns to look at Fiona who holds up 
 the arrow with a smile) Ow!
 
-DONKEY
+BURRO
 Hey, what's that? (nervous chuckle) 
 That's...is that blood?
 
@@ -2504,7 +2479,7 @@ you.
 FIONA
 That's DuLoc?
 
-DONKEY
+BURRO
 Yeah, I know. You know, Shrek thinks 
 Lord Farquaad's compensating for something, 
 which I think means he has a really...(Shrek 
@@ -2525,7 +2500,7 @@ FIONA
 I mean, look at him. He doesn't look 
 so good.
 
-DONKEY
+BURRO
 What are you talking about? I'm fine.
 
 
@@ -2543,7 +2518,7 @@ FIONA
 Uh, you know, I'll make you some tea.
 
 
-DONKEY
+BURRO
 I didn't want to say nothin', but I 
 got this twinge in my neck, and when 
 I turn my head like this, look, (turns 
@@ -2558,7 +2533,7 @@ Who's hungry? I'll find us some dinner.
 FIONA
 I'll get the firewood.
 
-DONKEY
+BURRO
 Hey, where you goin'? Oh, man, I can't 
 feel my toes! (looks down and yelps) 
 I don't have any toes! I think I need 
@@ -2612,7 +2587,7 @@ SHREK
 I, um, I was wondering...are you...(sighs) 
 Are you gonna eat that?
 
-DONKEY
+BURRO
 (chuckles) Man, isn't this romantic? 
 Just look at that sunset.
 
@@ -2623,7 +2598,7 @@ late. I-It's very late.
 SHREK
 What?
 
-DONKEY
+BURRO
 Wait a minute. I see what's goin' on 
 here. You're afraid of the dark, aren't 
 you?
@@ -2632,7 +2607,7 @@ FIONA
 Yes! Yes, that's it. I'm terrified. 
 You know, I'd better go inside.
 
-DONKEY
+BURRO
 Don't feel bad, Princess. I used to 
 be afraid of the dark, too, until - 
 - Hey, no, wait. I'm still afraid of 
@@ -2649,14 +2624,14 @@ Good night.
 Fiona goes inside the windmill and closes the door. Donkey looks 
 at Shrek with a new eye.
 
-DONKEY
+BURRO
 Ohh! Now I really see what's goin' on 
 here.
 
 SHREK
 Oh, what are you talkin' about?
 
-DONKEY
+BURRO
 I don't even wanna hear it. Look, I'm 
 an animal, and I got instincts. And 
 I know you two were diggin' on each 
@@ -2666,7 +2641,7 @@ SHREK
 You're crazy. I'm just bringing her 
 back to Farquaad.
 
-DONKEY
+BURRO
 Oh, come on, Shrek. Wake up and smell 
 the pheromones. Just go on in and tell 
 her how you feel.
@@ -2678,13 +2653,13 @@ know - - and I'm not sayin' I do 'cause
 I don't - - she's a princess, and I'm 
 - -
 
-DONKEY
+BURRO
 An ogre?
 
 SHREK
 Yeah. An ogre.
 
-DONKEY
+BURRO
 Hey, where you goin'?
 
 SHREK
@@ -2698,14 +2673,14 @@ TIME LAPSE
 Donkey opens the door to the Windmill and walks in. Fiona is 
 nowhere to be seen.
 
-DONKEY
+BURRO
 Princess? Princess Fiona? Princess, 
 where are you? Princess?
 
 Fiona looks at Donkey from the shadows, but we can't see her.
 
 
-DONKEY
+BURRO
 It's very spooky in here. I ain't playing 
 no games.
 
@@ -2713,45 +2688,45 @@ Suddenly Fiona falls from the railing. She gets up only she doesn't
 look like herself. She looks like an ogre and Donkey starts freaking 
 out.
 
-DONKEY
+BURRO
 Aah!
 
 FIONA
 Oh, no!
 
-DONKEY
+BURRO
 No, help!
 
 FIONA
 Shh!
 
-DONKEY
+BURRO
 Shrek! Shrek! Shrek!
 
 FIONA
 No, it's okay. It's okay.
 
-DONKEY
+BURRO
 What did you do with the princess?
 
 
 FIONA
 Donkey, I'm the princess.
 
-DONKEY
+BURRO
 Aah!
 
 FIONA
 It's me, in this body.
 
-DONKEY
+BURRO
 Oh, my God! You ate the princess. (to 
 her stomach) Can you hear me?
 
 FIONA
 Donkey!
 
-DONKEY
+BURRO
 (still aimed at her stomach) Listen, 
 keep breathing! I'll get you out of 
 there!
@@ -2759,13 +2734,13 @@ there!
 FIONA
 No!
 
-DONKEY
+BURRO
 Shrek! Shrek! Shrek!
 
 FIONA
 Shh.
 
-DONKEY
+BURRO
 Shrek!
 
 FIONA
@@ -2774,14 +2749,14 @@ This is me.
 Donkey looks into her eyes as she pets his muzzle, and he quiets 
 down.
 
-DONKEY
+BURRO
 Princess? What happened to you? You're, 
 uh, uh, uh, different.
 
 FIONA
 I'm ugly, okay?
 
-DONKEY
+BURRO
 Well, yeah! Was it something you ate? 
 'Cause I told Shrek those rats was a 
 bad idea. You are what you eat, I said. 
@@ -2791,7 +2766,7 @@ FIONA
 No. I - - I've been this way as long 
 as I can remember.
 
-DONKEY
+BURRO
 What do you mean? Look, I ain't never 
 seen you like this before.
 
@@ -2802,7 +2777,7 @@ shall be the norm... until you find
 true love's first kiss... and then take 
 love's true form."
 
-DONKEY
+BURRO
 Ah, that's beautiful. I didn't know 
 you wrote poetry.
 
@@ -2817,7 +2792,7 @@ Lord Farquaad tomorrow before the sun
 sets and he sees me like this. (begins 
 to cry)
 
-DONKEY
+BURRO
 All right, all right. Calm down. Look, 
 it's not that bad. You're not that ugly. 
 Well, I ain't gonna lie. You are ugly. 
@@ -2829,7 +2804,7 @@ But Donkey, I'm a princess, and this
 is not how a princess is meant to look.
 
 
-DONKEY
+BURRO
 Princess, how 'bout if you don't marry 
 Farquaad?
 
@@ -2837,7 +2812,7 @@ FIONA
 I have to. Only my true love's kiss 
 can break the spell.
 
-DONKEY
+BURRO
 But, you know, um, you're kind of an 
 orge, and Shrek - - well, you got a 
 lot in common.
@@ -2889,7 +2864,7 @@ Don't you see, Donkey? That's just how
 it has to be. It's the only way to break 
 the spell.
 
-DONKEY
+BURRO
 You at least gotta tell Shrek the truth.
 
 
@@ -2897,14 +2872,14 @@ FIONA
 No! You can't breathe a word. No one 
 must ever know.
 
-DONKEY
+BURRO
 What's the point of being able to talk 
 if you gotta keep secrets?
 
 FIONA
 Promise you won't tell. Promise!
 
-DONKEY
+BURRO
 All right, all right. I won't tell him. 
 But you should. (goes outside) I just 
 know before this is over, I'm gonna 
@@ -2977,7 +2952,7 @@ sitting up on his horse. You would never guess that he's only
 like 3 feet tall. Donkey wakes up with a yawn as the soldiers 
 march by.
 
-DONKEY
+BURRO
 What'd I miss? What'd I miss? (spots 
 the soldiers) (muffled) Who said that? 
 Couldn't have been the donkey.
@@ -3050,14 +3025,14 @@ Fare-thee-well, ogre.
 Farquaad's whole party begins to head back to DuLoc. Donkey watches 
 them go.
 
-DONKEY
+BURRO
 Shrek, what are you doing? You're letting 
 her get away.
 
 SHREK
 Yeah? So what?
 
-DONKEY
+BURRO
 Shrek, there's something about her you 
 don't know. Look, I talked to her last 
 night, She's - -
@@ -3068,7 +3043,7 @@ You're great pals, aren't ya? Now, if
 you two are such good friends, why don't 
 you follow her home?
 
-DONKEY
+BURRO
 Shrek, I - - I wanna go with you.
 
 SHREK
@@ -3078,14 +3053,14 @@ Me! Nobody else! Understand? Nobody!
 Especially useless, pathetic, annoying, 
 talking donkeys!
 
-DONKEY
+BURRO
 But I thought - -
 
 SHREK
 Yeah. You know what? You thought wrong! 
 (stomps off)
 
-DONKEY
+BURRO
 Shrek.
 
 Montage of different scenes. Shrek arriving back home. Fiona 
@@ -3103,7 +3078,7 @@ Donkey? (Donkey ignores him and continues
 with what he's doing.) What are you 
 doing?
 
-DONKEY
+BURRO
 I would think, of all people, you would 
 recognize a wall when you see one.
 
@@ -3113,14 +3088,14 @@ Well, yeah. But the wall's supposed
 to go around my swamp, not through it.
 
 
-DONKEY
+BURRO
 It is around your half. See that's your 
 half, and this is my half.
 
 SHREK
 Oh! Your half. Hmm.
 
-DONKEY
+BURRO
 Yes, my half. I helped rescue the princess. 
 I did half the work. I get half the 
 booty. Now hand me that big old rock, 
@@ -3130,40 +3105,40 @@ the one that looks like your head.
 SHREK
 Back off!
 
-DONKEY
+BURRO
 No, you back off.
 
 SHREK
 This is my swamp!
 
-DONKEY
+BURRO
 Our swamp.
 
 SHREK
 (grabs the tree branch Donkey is working 
 with) Let go, Donkey!
 
-DONKEY
+BURRO
 You let go.
 
 SHREK
 Stubborn jackass!
 
-DONKEY
+BURRO
 Smelly ogre.
 
 SHREK
 Fine! (drops the tree branch and walks 
 away)
 
-DONKEY
+BURRO
 Hey, hey, come back here. I'm not through 
 with you yet.
 
 SHREK
 Well, I'm through with you.
 
-DONKEY
+BURRO
 Uh-uh. You know, with you it's always, 
 "Me, me, me!" Well, guess what! Now 
 it's my turn! So you just shut up and 
@@ -3176,7 +3151,7 @@ SHREK
 Oh, yeah? Well, if I treated you so 
 bad, how come you came back?
 
-DONKEY
+BURRO
 Because that's what friends do! They 
 forgive each other!
 
@@ -3186,7 +3161,7 @@ you... for stabbin' me in the back!
 (goes into the outhouse and slams the 
 door)
 
-DONKEY
+BURRO
 Ohh! You're so wrapped up in layers, 
 onion boy, you're afraid of your own 
 feelings.
@@ -3194,7 +3169,7 @@ feelings.
 SHREK
 (os) Go away!
 
-DONKEY
+BURRO
 There you are , doing it again just 
 like you did to Fiona. All she ever 
 do was like you, maybe even love you.
@@ -3205,7 +3180,7 @@ SHREK
 hideous creature. I heard the two of 
 you talking.
 
-DONKEY
+BURRO
 She wasn't talkin' about you. She was 
 talkin' about, uh, somebody else.
 
@@ -3215,7 +3190,7 @@ SHREK
 talking about me? Well, then who was 
 she talking about?
 
-DONKEY
+BURRO
 Uh-uh, no way. I ain't saying anything. 
 You don't wanna listen to me. Right? 
 Right?
@@ -3223,7 +3198,7 @@ Right?
 SHREK
 Donkey!
 
-DONKEY
+BURRO
 No!
 
 SHREK
@@ -3232,21 +3207,21 @@ I'm sorry. I guess I am just a big,
 stupid, ugly ogre. Can you forgive me?
 
 
-DONKEY
+BURRO
 Hey, that's what friends are for, right?
 
 
 SHREK
 Right. Friends?
 
-DONKEY
+BURRO
 Friends.
 
 SHREK
 So, um, what did Fiona say about me?
 
 
-DONKEY
+BURRO
 What are you asking me for? Why don't 
 you just go ask her?
 
@@ -3254,7 +3229,7 @@ SHREK
 The wedding! We'll never make it in 
 time.
 
-DONKEY
+BURRO
 Ha-ha-ha! Never fear, for where, there's 
 a will, there's a way and I have a way. 
 (whistles)
@@ -3265,7 +3240,7 @@ they can climb on.
 SHREK
 Donkey?
 
-DONKEY
+BURRO
 I guess it's just my animal magnetism.
 
 
@@ -3275,7 +3250,7 @@ SHREK
 Aw, come here, you. (gives Donkey a 
 noogie)
 
-DONKEY
+BURRO
 All right, all right. Don't get all 
 slobbery. No one likes a kiss ass. All 
 right, hop on and hold on tight. I haven't 
@@ -3313,7 +3288,7 @@ COURTYARD
 Some guards are milling around. Suddenly the dragon lands with 
 a boom. The guards all take off running.
 
-DONKEY
+BURRO
 (to Dragon) Go ahead, HAVE SOME FUN. 
 If we need you, I'll whistle. How about 
 that? (she nods and goes after the guards) 
@@ -3324,7 +3299,7 @@ SHREK
 (at the Church door) What are you talking 
 about?
 
-DONKEY
+BURRO
 There's a line you gotta wait for. The 
 preacher's gonna say, "Speak now or 
 forever hold your peace." That's when 
@@ -3333,7 +3308,7 @@ you say, "I object!"
 SHREK
 I don't have time for this!
 
-DONKEY
+BURRO
 Hey, wait. What are you doing? Listen 
 to me! Look, you love this woman, don't 
 you?
@@ -3341,19 +3316,19 @@ you?
 SHREK
 Yes.
 
-DONKEY
+BURRO
 You wanna hold her?
 
 SHREK
 Yes.
 
-DONKEY
+BURRO
 Please her?
 
 SHREK
 Yes!
 
-DONKEY
+BURRO
 (singing James Brown style) Then you 
 got to, got to try a little tenderness. 
 (normal) The chicks love that romantic 
@@ -3363,7 +3338,7 @@ SHREK
 All right! Cut it out. When does this 
 guy say the line?
 
-DONKEY
+BURRO
 We gotta check it out.
 
 INSIDE CHURCH
@@ -3380,7 +3355,7 @@ Outside
 SHREK
 What do you see?
 
-DONKEY
+BURRO
 The whole town's in there.
 
 Inside
@@ -3391,7 +3366,7 @@ I now pronounce you husband and wife...
 
 Outside
 
-DONKEY
+BURRO
 They're at the altar.
 
 Inside
@@ -3401,7 +3376,7 @@ PRIEST
 
 Outside
 
-DONKEY
+BURRO
 Mother Fletcher! He already said it.
 
 
@@ -3564,7 +3539,7 @@ I will have - - (Donkey and the dragon
 show up and the dragon leans down and 
 eats Farquaad) Aaaah! Aah!
 
-DONKEY
+BURRO
 All right. Nobody move. I got a dragon 
 here, and I'm not afraid to use it. 
 (The dragon roars.) I'm a donkey on 
@@ -3573,13 +3548,13 @@ the edge!
 The dragon belches and Farquaad's crown flies out of her mouth 
 and falls to the ground.
 
-DONKEY
+BURRO
 Celebrity marriages. They never last, 
 do they?
 
 The congregation cheers.
 
-DONKEY
+BURRO
 Go ahead, Shrek.
 
 SHREK
@@ -3634,7 +3609,7 @@ But you ARE beautiful.
 
 They smile at each other.
 
-DONKEY
+BURRO
 (chuckles) I was hoping this would be 
 a happy ending.
 
@@ -3656,7 +3631,7 @@ singing the song.
 GINGERBREAD MAN
 God bless us, every one.
 
-DONKEY
+BURRO
 (as he's done singing and we fade to 
 black) Oh, that's funny. Oh. Oh. I can't 
 breathe. I can't breathe.
